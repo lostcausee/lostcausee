@@ -1,9 +1,9 @@
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=michaover&label=squiddolings&color=orange)<br>
+  ![](https://komarev.com/ghpvc/?username=michaover&label=tressure&color=blue)<br>
   
 <p align="center">
-  <img src="https://64.media.tumblr.com/b8fd88bd80d6e7767431b7ff96db3c80/f7c6fa23f690609d-01/s400x600/29a489f107c9b569649204c6bdf8d646d347a507.pnj" width="400" />
+  <img src="https://64.media.tumblr.com/879059178262c519134f571515c953c8/eaf7b4e72f4c39f1-bb/s2048x3072/4a6da75b9d4d1459a5b6cfcba12fb02b6081d0a5.gif" width="400" />
   <p align="center">
   <p align="center">
 <br>
