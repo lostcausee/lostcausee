@@ -1,14 +1,12 @@
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=michaover&label=tressure&color=blue)<br>
+  ![](https://komarev.com/ghpvc/?username=michaover&label=3D&color=red)<br>
   
 <p align="center">
-  <img src="https://64.media.tumblr.com/879059178262c519134f571515c953c8/eaf7b4e72f4c39f1-bb/s2048x3072/4a6da75b9d4d1459a5b6cfcba12fb02b6081d0a5.gif" width="400" />
+  <img src="https://64.media.tumblr.com/f96f6fecbb1b2494cf9afc1f0a92bd95/160e07afdc758dab-32/s400x600/cef510b343f4b66d15a9344888f2fb34fed02747.pnj" width="400" />
   <p align="center">
   <p align="center">
 <br>
-"I made the worst mistake possible on Lifesteal,<br>
-  which is caring about someone"<br>
 c+h please w2i . Basic dni<br>
  <p align="center">
    ⠀
